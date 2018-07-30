@@ -1,1 +1,1 @@
-# epochchaser.github.io
+# visit https://www.eosuite.app
